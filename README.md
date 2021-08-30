@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Anshika
+- 👀 I’m interested in Cooking and Coding
+- 🌱 I’m currently learning Coding
+- 📫 Reach me via my email ashusingla2001@gmail.com
